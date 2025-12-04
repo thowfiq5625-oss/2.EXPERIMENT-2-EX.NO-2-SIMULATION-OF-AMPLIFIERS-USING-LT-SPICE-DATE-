@@ -66,7 +66,7 @@
 
 ## OUT PUT WAVEFORM AND DISCUSSION 
 ![WhatsApp Image 2025-12-04 at 11 37 17_95b65910](https://github.com/user-attachments/assets/3760a539-63bb-426a-9ccd-fc05af343088)
-![Uploading WhatsApp Image 2025-12-04 at 13.16.48_66fc3a89.jpg…]()
+![WhatsApp Image 2025-12-04 at 13 16 48_2756795e](https://github.com/user-attachments/assets/5a9d3d00-f368-4e38-a250-527669266e78)
 
 
 ---
